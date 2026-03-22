@@ -107,5 +107,5 @@ Simulation modeling
 ---
 
 ## 📬 Contact
-Email: your-email@example.com  
-LinkedIn: (optional)
+Email: omisoclinton96Gmail.com 
+
