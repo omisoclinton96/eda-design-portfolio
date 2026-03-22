@@ -107,5 +107,5 @@ Simulation modeling
 ---
 
 ## 📬 Contact
-Email: omisoclinton96Gmail.com 
+Email: Mezzy649@gmail.com
 
